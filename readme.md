@@ -1,1 +1,1 @@
-### Hi there, I'm Jaber - aka [@shuvo] 👋
+### Hi there, I'm Jaber👋
